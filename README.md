@@ -1,1 +1,3 @@
-https://github.com/codytaft/resume/files/2799402/cody.taft.resume.pdf
+Cody Taft Resume
+
+https://imgur.com/a/QGI6G8j
