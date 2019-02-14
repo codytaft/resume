@@ -1,6 +1,6 @@
 # resume
 Cody Taft Resume
 
-<img src="https://imgur.com/a/R6iCy4q" alt="resume" />
+<img src="https://imgur.com/as6VVKd.jpg" alt="resume" />
 
 
